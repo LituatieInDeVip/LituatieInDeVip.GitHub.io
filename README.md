@@ -1,2 +1,2 @@
 # LituatieInDeVip.GitHub.io
-mijn site
+mijn site gaat de wereld veroveren
